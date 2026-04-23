@@ -10,7 +10,34 @@ I am passionate about empowering teams, optimizing business operations, and leve
 
 𝗞𝗲𝘆 𝗦𝗸𝗶𝗹𝗹𝘀 & 𝗘𝘅𝗽𝗲𝗿𝘁𝗶𝘀𝗲
 
-HR Onboarding & Employee Administration Office Operations & Project Coordination Vendor Management, Procurement & Inventory Control Finance Support (AP/AR, Excel Reporting, Budgeting) Workflow Optimization & Process Improvement Training & Meeting Logistics (Internal/External) Confidential Document Handling & Compliance Travel Management (Domestic & International) Digital Skills & Tech-Savvy MS Office (Word, Excel, PowerPoint, Outlook) Excel for Data Analysis (VLOOKUP, Pivot Table) AI & automation tools (beginner Python, Office scripting, device troubleshooting) Communication & Interpersonal Skills Bilingual: English, Chinese; Conversational Japanese (JLPT N3) Written & Verbal Communication, Presentation, Stakeholder Engagement Entrepreneurial Drive & Resilience Launched and managed an end-to-end online store, demonstrating adaptability and client focus.
+- HR Onboarding & Employee Administration
+
+- Office Operations & Project Coordination
+
+- Vendor Management, Procurement & Inventory Control 
+
+- Finance Support (AP/AR, Excel Reporting, Budgeting) 
+
+- Workflow Optimization & Process Improvement
+
+- Training & Meeting Logistics (Internal/External)
+
+- Confidential Document Handling & Compliance
+
+- Travel Management (Domestic & International)
+
+- Digital Skills & Tech-Savvy (VLOOKUP, Pivot Tables,data analysis and reporting, Workstation setup, office machine troubleshooting,Excel for Data Analysis, Info-Tech HRMS, Cyber Risk Management (Data Protection) 
+
+- MS Office (Word, Excel, PowerPoint, Outlook)
+
+- Excel for Data Analysis (VLOOKUP, Pivot Table) 
+
+- AI & automation tools (Excel for data analysis and reporting, 
+
+- Communication & Interpersonal Skills 
+
+Presentation, Stakeholder Engagement Entrepreneurial Drive & Resilience 
+Launched and managed an end-to-end online store, demonstrating adaptability and client focus.
 
 𝗖𝘂𝗿𝗿𝗲𝗻𝘁𝗹𝘆 𝗘𝘅𝗽𝗹𝗼𝗿𝗶𝗻𝗴 & 𝗟𝗲𝗮𝗿𝗻𝗶𝗻𝗴
 
