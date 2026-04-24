@@ -44,8 +44,9 @@ I am passionate about empowering teams, optimizing business operations, and leve
   - Launched and managed an end-to-end online store, demonstrating adaptability and client focus.
 
 𝗖𝘂𝗿𝗿𝗲𝗻𝘁𝗹𝘆 𝗘𝘅𝗽𝗹𝗼𝗿𝗶𝗻𝗴 & 𝗟𝗲𝗮𝗿𝗻𝗶𝗻𝗴
--  AI-powered office automation and digital productivity tools
--  Process improvement frameworks  
+- AI-powered office automation and digital productivity tools
+- AI-powered office automation and digital productivity tools
+- Process improvement frameworks  
 - Human Behaviour at workplace & mentorship
 
 𝗦𝗲𝗹𝗲𝗰𝘁𝗲𝗱 𝗣𝗿𝗼𝗷𝗲𝗰𝘁𝘀 & 𝗔𝗰𝗵𝗶𝗲𝘃𝗲𝗺𝗲𝗻𝘁𝘀
@@ -54,8 +55,15 @@ Automated internal meeting room booking system, reducing booking conflicts by 50
 Reduced office operating expenses by 10% via procurement process optimization, Improved financial processing turnaround by 80% with advanced Excel formulas Led end-to-end planning & vendor coordination for large-scale corporate events and training.
 
 𝗖𝗲𝗿𝘁𝗶𝗳𝗶𝗰𝗮𝘁𝗶𝗼𝗻𝘀
+- Human Resource Systems Management & Practical Training with Info-Tech HRIS - Info-Tech Systems
+- Excel for Data and Statistical Analytics - James Cook Institute
+- Cyber Risk Management (Data Protection Compliance) - FirstCom Academy
+- Financial Planning for non Accounting Professional - Impact Management Seminars
 
-Certified Human Resource Management & Practical Training, Info-Tech Excel for Data Analysis, James Cook Institute Cyber Risk Management (Data Protection Compliance), FirstCom Academy Financial Planning, Impact Management Basic Lean, 5S, Six Sigma (GE), Oracle Financial Implementation (GE)
+𝗔𝘄𝗮𝗿𝗱𝘀
+
+- Basic Awareness of Six Sigma Lean, 5S & CAP (GE)
+-	Oracle Financial Implementation (GE)
 
 𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲𝘀
 
