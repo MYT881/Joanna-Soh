@@ -14,7 +14,7 @@ I am passionate about empowering teams, optimizing business operations, and leve
 
 - Office Operations & Project Coordination
 
-- Vendor Management, Procurement & Inventory Control 
+- Vendor Management, Procurement & Inventory Control
 
 - Finance Support (AP/AR, Excel Reporting, Budgeting) 
 
@@ -26,13 +26,12 @@ I am passionate about empowering teams, optimizing business operations, and leve
 
 - Travel Management (Domestic & International)
 
-- Digital Skills & Tech-Savvy (VLOOKUP, Pivot Tables,data analysis and reporting, Workstation setup, office machine troubleshooting,Excel for Data Analysis, Info-Tech HRMS, Cyber Risk Management (Data Protection) 
+- Digital Skills & Tech-Savvy (Excel for Data Analysis, Reporting, Workstation setup, office machine troubleshooting, Info-Tech HRMS, Cyber Risk Management (Data Protection) 
 
 - MS Office (Word, Excel, PowerPoint, Outlook)
 
-- Excel for Data Analysis (VLOOKUP, Pivot Table) 
-
-- AI & automation tools (Excel for data analysis and reporting, 
+- AI & automation tools (ChatGPT, Claude, Copilot, Perplexity, Quillbot, Grammarly, Notion
+- Self-directed learner exploring AI for productivity and office automation)
 
 - Communication & Interpersonal Skills 
 
@@ -40,8 +39,6 @@ Presentation, Stakeholder Engagement Entrepreneurial Drive & Resilience
 Launched and managed an end-to-end online store, demonstrating adaptability and client focus.
 
 𝗖𝘂𝗿𝗿𝗲𝗻𝘁𝗹𝘆 𝗘𝘅𝗽𝗹𝗼𝗿𝗶𝗻𝗴 & 𝗟𝗲𝗮𝗿𝗻𝗶𝗻𝗴
-
-AI-powered office automation and digital productivity tools Process improvement frameworks (Lean, Six Sigma, 5S) Financial planning and risk management principles Enhancing data analysis with Excel and Python basics
 
 𝗦𝗲𝗹𝗲𝗰𝘁𝗲𝗱 𝗣𝗿𝗼𝗷𝗲𝗰𝘁𝘀 & 𝗔𝗰𝗵𝗶𝗲𝘃𝗲𝗺𝗲𝗻𝘁𝘀
 
