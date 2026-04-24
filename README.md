@@ -50,7 +50,7 @@ I am passionate about empowering teams, optimizing business operations, and leve
 
 𝗦𝗲𝗹𝗲𝗰𝘁𝗲𝗱 𝗣𝗿𝗼𝗷𝗲𝗰𝘁𝘀 & 𝗔𝗰𝗵𝗶𝗲𝘃𝗲𝗺𝗲𝗻𝘁𝘀
 
-Automated internal meeting room booking system, reducing booking conflicts by 50% 
+Automated internal meeting room booking system, reducing booking conflicts by 50%,
 Reduced office operating expenses by 10% via procurement process optimization, Improved financial processing turnaround by 80% with advanced Excel formulas Led end-to-end planning & vendor coordination for large-scale corporate events and training.
 
 𝗖𝗲𝗿𝘁𝗶𝗳𝗶𝗰𝗮𝘁𝗶𝗼𝗻𝘀
